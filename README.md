@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Vaibhav Salode
-**Full Stack Developer (MERN & Java) | 3.5 Years of Experience in Scalable Web Solutions | Building Robust Applications| Delivering End-to-End Solutions**
+**Full Stack Developer (MERN & Java) | 3.5+ Years of Experience in Scalable Web Solutions | Building Robust Applications| Delivering End-to-End Solutions**
 
 Email Me 👉 ✉️ **vaibhavsalode2675@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
